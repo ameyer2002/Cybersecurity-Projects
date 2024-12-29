@@ -1,1 +1,1 @@
-Hi! I'm Andrew, a Cybersecurity and IT Studen
+Hi! I'm Andrew, a Cybersecurity and IT Student.
